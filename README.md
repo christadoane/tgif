@@ -5,3 +5,4 @@ List of favorite things to do this weekend
 * Go see friends
 * Go for a drive
 * sleeping
+* scuba dive
